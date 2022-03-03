@@ -1,1 +1,1 @@
-# politicadeprivacidade.github.io
+# http://politicadeprivacidade.github.io
