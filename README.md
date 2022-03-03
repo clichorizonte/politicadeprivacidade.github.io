@@ -1,1 +1,1 @@
-# http://politicadeprivacidade.github.io
+# https://clichorizonte.github.io/politicadeprivacidade.github.io/
